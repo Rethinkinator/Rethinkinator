@@ -1,1 +1,1 @@
-![image](https://github.com/Rethinkinator/Rethinkinator/blob/main/imf2rbvi8q9y.gif?raw=true)
+![image](https://github.com/Rethinkinator/Rethinkinator/blob/main/ISS_earth.en.jpg?raw=true)
